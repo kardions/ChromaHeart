@@ -4,4 +4,5 @@ o/
 currently using BGs found via google images and piccrew characters
 
 
-![chromahearts1](https://user-images.githubusercontent.com/117401892/199876762-65b7234e-1376-4c78-a218-ef81f2961e57.png)
+
+![chromahearts1](https://user-images.githubusercontent.com/117401892/199876886-1bb23c8a-b7a1-457b-bd96-5a387a11a5a9.png)
